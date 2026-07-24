@@ -1,0 +1,1 @@
+# Ampas_Dark_System.30v08c1p
